@@ -3,7 +3,7 @@
 
 ## **Online Platform & Digital Manager**
 ***
-![Digital Transformation](https://crosstechcom.com/wp-content/uploads/2020/09/Digital-Transformation-min.png)
+![Digital Transformation](https://innovationatwork.ieee.org/wp-content/uploads/2021/09/bigstock-Internet-Business-Technology-428549714_1024X684.png)
 
 ### **It's Me**
 ***
